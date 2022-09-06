@@ -4,4 +4,4 @@
 
 Un espacio para la reunión virtual de unedianes queer, con especial énfasis en la minorías más olvidadas.
 
-Podéis escribir a uned-queer-square@outlook.es quienes estéis interesades en crear un grupo de Telegram.
+Podéis escribir a uned-queer-square@gmx.es quienes estéis interesades en crear un grupo de Telegram.
